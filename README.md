@@ -27,7 +27,9 @@
 ୨୧ pls dont copy/dont cover my skins or ill bite you!
 
 ୨୧ iwc because im not good at communicating and anti-social!
+
 ୨୧ dont spam too much about s3xjoke, pedo or sensitive issues with me, i discriminate against them!
 
+       ૮ ˙Ⱉ˙ ა rawr!    
 
 thank yall for reading, have fun.
