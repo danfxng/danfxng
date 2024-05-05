@@ -18,6 +18,8 @@
 
 ⌗ languages: english; vietnamese
 
+⌗ discord: frcois.k 
+
 ✧ rules: 
 
 ୨୧ pls dont copy/dont cover my skins or ill bite you!
