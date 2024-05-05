@@ -14,7 +14,7 @@
 
 ⌗ fandoms: bsd; enstars; genshin impact; persona 5; omori; bleach (rest); pjsk (rest)
 
-⌗ favourites: kamishiro rui - tenma tsukasa (pjsk); kamisato ayato - albedo (gi); kaoru hakazu (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) !!dont fight over them with me, its annoying!!
+⌗ favourites: kamishiro rui - tenma tsukasa (pjsk); kamisato ayato - albedo (gi); kaoru hakaze (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) !!dont fight over them with me, its annoying!!
 
 ⌗ c+h free or except for skins i leave name tag dniuf/dniucf
 
