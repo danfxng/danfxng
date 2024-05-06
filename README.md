@@ -1,35 +1,39 @@
-──★ ˙🐥! iifuudoudou/liuxingxx # about-me!
+![waku waku!](https://tenor.com/fhpSjajJEaG.gif)
 
-✧ basic information:
 
-𖦁ׅ ࣪ name: i have many names but feel free to call me kyo, dawn or a nickname you give me (if we are friends)
 
-𖦁ׅ ࣪ age-birthday: 17; november 26
+**──★ ˙🐥! iifuudoudou/liuxingxx # about-me!**
 
-𖦁ׅ ࣪ mbti: intp-t 5w4 (sometimes i use high ne-doms and act as an entp)
+***✧ basic information***
 
-𖦁ׅ ࣪ kinnie: omori; kamishiro rui; tatsuhiko shibusawa 
+𖦁ׅ ࣪ _name:_ i have many names but feel free to call me kyo, dawn or a nickname you give me (if we are friends)
 
-✧ fandoms and more:
+𖦁ׅ ࣪ _age-birthday:_ 17; november 26
 
-⌗ fandoms: bsd; enstars; genshin impact; persona 5; omori; bleach (rest); pjsk (rest)
+𖦁ׅ ࣪ _mbti:_ intp-t 5w4 (sometimes i use high ne-doms and act as an entp)
 
-⌗ favourites: kamishiro rui - tenma tsukasa (pjsk); kamisato ayato - albedo (gi); kaoru hakaze (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) !!dont fight over them with me, its annoying!!
+𖦁ׅ ࣪ _kinnie:_ omori; kamishiro rui; tatsuhiko shibusawa 
 
-⌗ c+h free or except for skins i leave name tag dniuf/dniucf
+✧ ***fandoms and more:***
 
-⌗ languages: english; vietnamese
+⌗ _fandoms:_ bsd; enstars; genshin impact; persona 5; omori; bleach (rest); pjsk (rest)
 
-⌗ discord: frcois.k 
+⌗ _favourites:_ kamishiro rui - tenma tsukasa (pjsk); kamisato ayato - albedo (gi); kaoru hakaze (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) **!!dont fight over them with me, its annoying!!**
 
-✧ rules: 
+⌗ _int:_ c+h free or except for skins i leave name tag dniuf/dniucf
 
-୨୧ pls dont copy/dont cover my skins or ill bite you!
+⌗ _languages:_ english; vietnamese
 
-୨୧ iwc because im not good at communicating and anti-social!
+⌗ _discord:_ frcois.k 
 
-୨୧ dont spam too much about s3xjoke, pedo or sensitive issues with me, i discriminate against them!
+✧ ***rules:***
 
-       ૮ ˙Ⱉ˙ ა rawr!    
+୨୧ _pls dont copy/dont cover my skins or ill bite you!_
+
+୨୧ _iwc because im not good at communicating and anti-social!_
+
+୨୧ _dont spam too much about s3xjoke, pedo or sensitive issues with me, i discriminate against them!_
+
+      ૮ ˙Ⱉ˙ ა rawr!  
 
 thank yall for reading, have fun.
