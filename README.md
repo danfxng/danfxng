@@ -1,4 +1,5 @@
-![waku waku!](https://tenor.com/fhpSjajJEaG.gif)
+![image](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/6a9eaf31-d93b-4fad-94a6-aae83c18be7f)!~~rui canon!~~
+
 
 
 
