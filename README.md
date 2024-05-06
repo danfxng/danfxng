@@ -1,6 +1,3 @@
-![Alt Text](https://tenor.com/vi/view/rui-kamishiro-gif-4294686999135556688)
-
-
 ──★ ˙🐥! iifuudoudou/liuxingxx # about-me!
 
 ✧ basic information:
