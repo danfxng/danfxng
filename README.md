@@ -1,11 +1,11 @@
-![image](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/6a9eaf31-d93b-4fad-94a6-aae83c18be7f)!~~rui canon!~~
+![image](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/6a9eaf31-d93b-4fad-94a6-aae83c18be7f)~~?rui canon!~~
 
 
 
 
 **──★ ˙🐥! iifuudoudou/liuxingxx # about-me!**
 
-***✧ basic information***
+***✧ basic information:***
 
 𖦁ׅ ࣪ _name:_ i have many names but feel free to call me kyo, dawn or a nickname you give me (if we are friends)
 
