@@ -19,7 +19,7 @@
 
 ⌗ _fandoms:_ bsd; enstars; genshin impact; persona 5; omori; bleach (rest); pjsk (rest)
 
-⌗ _favourites:_ kamishiro rui - tenma tsukasa (pjsk); kamisato ayato - albedo (gi); kaoru hakaze (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) **!!dont fight over them with me, its annoying!!**
+⌗ _favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato - albedo (gi); kaoru hakaze (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) **!!dont fight over them with me, its annoying!!**
 
 ⌗ _int:_ c+h free or except for skins i leave name tag dniuf/dniucf
 
