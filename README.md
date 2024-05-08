@@ -9,31 +9,31 @@
 
 𖦁ׅ ࣪ _name:_ i have many names but feel free to call me kyo, dawn or a nickname you give me (if we are friends)
 
-𖦁ׅ ࣪ _age-birthday:_ 17; november 26
+_𖦁ׅ ࣪ age-birthday:_ 17; november 26
 
-𖦁ׅ ࣪ _mbti:_ intp-t 5w4 (sometimes i use high ne-doms and act as an entp)
+_𖦁ׅ ࣪ mbti:_ intp-t 5w4 (sometimes i use high ne-doms and act as an entp)
 
-𖦁ׅ ࣪ _kinnie:_ omori; kamishiro rui; tatsuhiko shibusawa 
+_𖦁ׅ ࣪ kinnie:_ omori; kamishiro rui; tatsuhiko shibusawa 
 
 ✧ ***fandoms and more:***
 
-⌗ _fandoms:_ bsd; enstars; genshin impact; persona 5; omori; bleach (rest); pjsk (rest)
+_⌗ fandoms:_ bsd; enstars; genshin impact; persona 5; omori; bleach (rest); pjsk (rest)
 
-⌗ _favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato - albedo (gi); kaoru hakaze (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) **!!dont fight over them with me, its annoying!!**
+_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato - albedo (gi); kaoru hakaze (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) **!!dont fight over them with me, its annoying!!**
 
-⌗ _int:_ c+h free or except for skins i leave name tag dniuf/dniucf
+_⌗ int:_ c+h free or except for skins i leave name tag dniuf/dniucf
 
-⌗ _languages:_ english; vietnamese
+_⌗ languages:_ english; vietnamese
 
-⌗ _discord:_ frcois.k 
+_⌗ discord:_ frcois.k 
 
 ✧ ***rules:***
 
-୨୧ _pls dont copy/dont cover my skins or ill bite you!_
+_୨୧ pls dont copy/dont cover my skins or ill bite you!_
 
-୨୧ _iwc because im not good at communicating and anti-social!_
+_୨୧ iwc because im not good at communicating and anti-social!_
 
-୨୧ _dont spam too much about s3xjoke, pedo or sensitive issues with me, i discriminate against them!_
+_୨୧ dont spam too much about s3xjoke, pedo or sensitive issues with me, i discriminate against them!_
 
       ૮ ˙Ⱉ˙ ა rawr!  
 
