@@ -2,7 +2,7 @@
 
 ~~yokoso...who i am? OFC BLADE'S LOVER!!!~~
 
-     www. .. 应星 - 刃.. 我不能停止想你。  ٩(ˊᗜˋ*)و ♡
+     www. .. 刃(应星).. 我不能停止想你。  ٩(ˊᗜˋ*)و ♡
 
 **──★ ˙🐥! iifuudoudou (a lazy nerd)**
 
