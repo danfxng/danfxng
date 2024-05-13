@@ -2,13 +2,13 @@
 
 ~~yokoso...who i am? OFC BLADE'S LOVER!!!~~
 
-     www. .. 刃(应星).. 我不能停止想你。  ٩(ˊᗜˋ*)و ♡
+     www. .. 刃(应星).. 我不能停止想你。٩(ˊᗜˋ*)و ♡
 
 **──★ ˙🐥! iifuudoudou (a lazy nerd)**
 
 ***✧ basic information:***
 
-𖦁ׅ ࣪ _name:_ kyo; dawn; ren
+_𖦁ׅ ࣪ name:_ kyo; dawn; ren
 
 _𖦁ׅ ࣪ age:_ 17
 
@@ -20,7 +20,7 @@ _𖦁ׅ ࣪ kinnie:_ omori; ib; tatsuhiko shibusawa
 
 _⌗ fandoms:_ bsd; gi; hsr; pjsk
 
-_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato - albedo (gi); kaoru hakaze (enstars); sigma - tatsuhiko shibusawa - bram stoker (bsd) 
+_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing (hsr)
 
 
 **!!dont fight over them with me, ill just stare at u like that!!:**
@@ -42,7 +42,7 @@ _୨୧ iwc because im not good at communicating and anti-social!_
 
 _୨୧ dont spam too much about s3xjoke, pedo or sensitive issues with me, so fukjin dir.ty._
 
-    ૮ ˙Ⱉ˙ ა rawr!  
+    ૮ ˙Ⱉ˙ ა rawr!  maybe its a jumpscare 
 
 thank yall for reading, have fun.
 
