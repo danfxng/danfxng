@@ -1,14 +1,14 @@
+![1000003335](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/6de17875-a849-4117-aa84-6cc85f5c3ea0)
 
+~~yokoso...who i am? OFC BLADE'S LOVER!!!~~
 
-~~who i am? OFC BLADE'S LOVER!~~
+     www. .. 应星 - 刃.. 我不能停止想你。  ٩(ˊᗜˋ*)و ♡
 
-     heh. ..
-
-**──★ ˙🐥! iifuudoudou/liuxingxx # (a lazy nerd)**
+**──★ ˙🐥! iifuudoudou (a lazy nerd)**
 
 ***✧ basic information:***
 
-𖦁ׅ ࣪ _name:_ kyo; dawn
+𖦁ׅ ࣪ _name:_ kyo; dawn; ren
 
 _𖦁ׅ ࣪ age:_ 17
 
@@ -25,8 +25,8 @@ _⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato a
 
 **!!dont fight over them with me, ill just stare at u like that!!:**
 
-![pspsps](https://pin.it/3L1iOPmJ0)
 
+![1000003334](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/32769036-d7dd-42e4-9d25-c999df99a87e)
 
 _⌗ int:_ c+h free or except for skins i leave name tag dniuf/dniucf
 
@@ -34,13 +34,13 @@ _⌗ languages:_ english; vietnamese
 
 _⌗ discord:_ frcois.k 
 
-✧ ***rules:***
+✧ ***important:***
 
 _୨୧ pls dont copy/dont cover my skins or ill bite you!_
 
 _୨୧ iwc because im not good at communicating and anti-social!_
 
-_୨୧ dont spam too much about s3xjoke, pedo or sensitive issues with me, i discriminate against them!_
+_୨୧ dont spam too much about s3xjoke, pedo or sensitive issues with me, so fukjin dir.ty._
 
     ૮ ˙Ⱉ˙ ა rawr!  
 
