@@ -1,5 +1,3 @@
-![yokoso..](
-https://pin.it/3PYlPQFAe)
 
 
 ~~who i am? OFC BLADE'S LOVER!~~
@@ -44,8 +42,10 @@ _୨୧ iwc because im not good at communicating and anti-social!_
 
 _୨୧ dont spam too much about s3xjoke, pedo or sensitive issues with me, i discriminate against them!_
 
-      ૮ ˙Ⱉ˙ ა rawr!  
+    ૮ ˙Ⱉ˙ ა rawr!  
 
 thank yall for reading, have fun.
 
-![bai](https://pin.it/6BP3YDWON)
+
+![1000003336](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/75b69e92-fdd6-4e16-bf50-6aaf5ee4585a)
+baibai.
