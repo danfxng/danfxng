@@ -20,7 +20,7 @@ _𖦁ׅ ࣪ kinnie:_ omori; ib; tatsuhiko shibusawa
 
 _⌗ fandoms:_ bsd; gi; hsr; pjsk
 
-_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing (hsr)
+_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing - jing yuan (hsr)
 
 
 **!!dont fight over them with me, ill just stare at u like that!!:**
