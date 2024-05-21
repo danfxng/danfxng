@@ -4,7 +4,7 @@
 
     hhh. .. cutie.. 我不能停止想你。٩(ˊᗜˋ*)و♡
 
-**──★ ˙🐥! me (a lazy nerd)**
+**──★ ˙🕵️! me (a lazy nerd)**
 
 ***✧ basic information:***
 
@@ -12,15 +12,15 @@ _𖦁ׅ ࣪ name:_ kyo; dawn; ren
 
 _𖦁ׅ ࣪ age:_ 17
 
-_𖦁ׅ ࣪ mbti:_ intp-t 5w4 (sometimes i use high ne-doms and act as an entp)
+_𖦁ׅ ࣪ mbti:_ intp 5w4
 
-_𖦁ׅ ࣪ kinnie:_ omori; ib; tatsuhiko shibusawa 
+_𖦁ׅ ࣪ kinnie:_ omori
 
 ✧ ***fandoms and more:***
 
 _⌗ fandoms:_ bsd; gi; hsr; pjsk
 
-_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing - jing yuan (hsr)
+_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing - jing yuan - dan feng (hsr)
 
 
 **!!dont fight over them with me, ill just stare at u like that!!:**
