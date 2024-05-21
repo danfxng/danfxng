@@ -1,8 +1,8 @@
-![1000003335](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/6de17875-a849-4117-aa84-6cc85f5c3ea0)
+![1000003419](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/c96c0da6-43f9-4758-bb5e-b6c0cf951069)
 
-~~yokoso...who i am? OFC BLADE'S LOVER!!!~~
+~~yokoso...who i am? OFC BLADE JING YUAN DAN FENG'S LOVER!!!~~
 
-     www. .. 刃(应星).. 我不能停止想你。٩(ˊᗜˋ*)و ♡
+    hhh. .. cutie.. 我不能停止想你。٩(ˊᗜˋ*)و♡
 
 **──★ ˙🐥! iifuudoudou (a lazy nerd)**
 
@@ -26,7 +26,7 @@ _⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato a
 **!!dont fight over them with me, ill just stare at u like that!!:**
 
 
-![1000003334](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/32769036-d7dd-42e4-9d25-c999df99a87e)
+![1000003421](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/ff9a34fb-df8d-43f4-860d-76958e4d263d)
 
 _⌗ int:_ c+h free or except for skins i leave name tag dniuf/dniucf
 
@@ -47,5 +47,5 @@ _୨୧ dont spam too much about s3xjoke, pedo or sensitive issues with me, so f
 thank yall for reading, have fun.
 
 
-![1000003336](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/75b69e92-fdd6-4e16-bf50-6aaf5ee4585a)
+![1000003418](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/0be17ed1-9885-485d-b5cc-1dd338dbd891)
 baibai.
