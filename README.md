@@ -4,7 +4,7 @@
 
     hhh. .. cutie.. 我不能停止想你。٩(ˊᗜˋ*)و♡
 
-**──★ ˙🐥! iifuudoudou (a lazy nerd)**
+**──★ ˙🐥! me (a lazy nerd)**
 
 ***✧ basic information:***
 
