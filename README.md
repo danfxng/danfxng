@@ -18,15 +18,15 @@ _𖦁ׅ ࣪ kinnie:_ omori
 
 ✧ ***fandoms and more:***
 
-_⌗ fandoms:_ bsd; gi; hsr; pjsk
+_⌗ fandoms:_ bsd; gi; hsr; pjsk; vtuber (only nijisanji en cuz im so fukjin bad at japanese)
 
-_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing - jing yuan - dan feng (hsr)
+_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing - jing yuan - dan feng (hsr); mysta rias: sonny brisko
 
 
 **!!dont fight over them with me, ill just stare at u like that!!:**
 
 
-![1000003421](https://github.com/iifuudoudou/iifuudoudou/assets/165263026/ff9a34fb-df8d-43f4-860d-76958e4d263d)
+![1000003430](https://github.com/danfxng/danfxng/assets/165263026/ecba9df1-15e6-472d-aced-0b8c29431ab0)
 
 _⌗ int:_ c+h free or except for skins i leave name tag dniuf/dniucf
 
