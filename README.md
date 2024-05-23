@@ -20,7 +20,7 @@ _𖦁ׅ ࣪ kinnie:_ omori
 
 _⌗ fandoms:_ bsd; gi; hsr; pjsk; vtuber (only nijisanji en cuz im so fukjin bad at japanese)
 
-_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing - jing yuan - dan feng (hsr); mysta rias: sonny brisko
+_⌗ favourites:_ kamishiro rui - tenma tsukasa - toya aoyagi (pjsk); kamisato ayato (gi); sigma - tatsuhiko shibusawa - bram stoker (bsd); blade/yingxing - jing yuan - dan feng (hsr); mysta rias; sonny brisko
 
 
 **!!dont fight over them with me, ill just stare at u like that!!:**
