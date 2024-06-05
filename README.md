@@ -6,7 +6,7 @@ first of all, yall can call me kyo-dawn or just k, ITS THE SHORTEST
   
 no joke, im not good at talking or sharing emotions (hahda a nerd that can ignore ur feelings)
 
-  mostly afk but i fw c+h (why not), dont by shy just come here honeey rizz 1!1!1!...btw my english is not gud sometimes ill act like a idiot from trash can pls forgive me
+  mostly afk but i fw c+h (why not), dont be shy just come here honeey rizz 1!1!1!...btw my english is not gud so sometimes ill act like a idiot from trash can pls forgive me sniff huehuehue
 i mainly appear in hoyoverse or bsd areas, rarely go elsewhere :D    
 
 
