@@ -1,7 +1,8 @@
   heh i wrote about myself 2nd time at github but this version is shorter than old version hhhh
 
 first of all, yall can call me kyo-dawn or just k, ITS THE SHORTEST
-  dni if youre a HATER OF IKE EVELAND or SONNY BRISKO (theyre vtubers from 2434 also my kamioshi)
+ 
+   dni if youre a HATER OF IKE EVELAND or SONNY BRISKO (theyre vtubers from 2434 also my kamioshi)
   
 no joke, im not good at talking or sharing emotions (hahda a nerd that can ignore ur feelings)
 
