@@ -1,8 +1,6 @@
   heh i wrote about myself 2nd time at github but this version is shorter than old version hhhh
 
-first of all, yall can call me kyo-dawn or just k, ITS THE SHORTEST
-
-im intp 5w4, omori canon but i still know how to use my fi-dom so i might become stubborn and uncomfortable with everything related to emotions (do i look stupid?...)
+first of all, yall can call me kyo-dawn or just k, ITS THE SHORTEST bruv im intp 5w4, omori canon 
  
    dni if youre a HATER OF IKE EVELAND or SONNY BRISKO (theyre vtubers from 2434 also my kamioshi)
   
@@ -18,4 +16,4 @@ ok bai...
 
 
 ~~next time u wont be so lucky~~
-![1000003586](https://github.com/danfxng/k./assets/165263026/a5b0c6ea-2b65-487a-80cc-e52fc595b3c2)
+![081da71b64c73a0d93d71b50f1c989b2](https://github.com/kyoritsuu/kyoritsuu/assets/165263026/90153c0d-262f-4166-b043-c1cb54be9ed3)
